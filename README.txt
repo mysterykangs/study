@@ -2,3 +2,4 @@
 Hi. my name is KangSeungWooo.
 
 반갑습니다.
+잘부탁드립니다. 
